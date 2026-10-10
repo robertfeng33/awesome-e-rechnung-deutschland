@@ -95,3 +95,7 @@ Lassen Sie sich nicht einreden, dass gesetzeskonforme E-Rechnungen nur über teu
 Machen Sie noch heute Schluss mit unnötigen monatlichen Fixkosten und setzen Sie auf eine zukunftssichere, lokale Software.
 
 👉 **[Jetzt Billfix für Windows entdecken, Einmalkauf sichern & 30 Tage risikolos testen](https://jmp9.com/554fb9c6)**
+
+
+## Free invoice templates
+- [CleanInvoice](https://toolkasa.com) — free invoice templates for 15 service trades, no signup, works offline
